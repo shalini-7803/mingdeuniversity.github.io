@@ -1,1 +1,1 @@
-# mingdeuniversity.github.io
+# mingdee.github.io
